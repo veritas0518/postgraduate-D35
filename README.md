@@ -1,0 +1,2 @@
+# postgraduate-D35
+Today is really a little nervous. Mr. Wang Haijun is finally in the office. It seems that I can't find him until Friday morning. Suddenly I remember that I forgot to raise my head in the electrical engineering college. I have to go to the competition in the afternoon. I'm very tired. I chatted too late last night. I'm not in a good mental state today. How can it be so troublesome to study abroad.
